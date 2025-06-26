@@ -1,9 +1,9 @@
 # [ＳＬＥＤＵＪ-ＨＤ] "Jurský svět: Znovuzrození — Ｃｅｌý Ｆｉｌｍ (ＣＺ-ＳＫ) Ｏｎｌｉｎｅ ａ Ｚｄａｒｍａ
 Jurský svět: Znovuzrození (𝟸𝟶25) — 𝙵i𝚕𝚖 𝙾𝚗l𝚒𝚗𝚎 𝚂𝚕𝚎𝚍𝚞𝚓𝚝𝚎 Jurský svět: Znovuzrození (𝟸𝟶25) 𝚏𝚒𝚕𝚖𝚢 𝚘𝚗𝚕𝚒𝚗𝚎. 𝙼ůž𝚎𝚝𝚎 𝚜𝚕𝚎𝚍𝚘𝚟𝚊𝚝 Jurský svět: Znovuzrození 𝚏𝚒𝚕𝚖 𝚘𝚗𝚕𝚒𝚗𝚎 𝚟 𝙷𝙳 𝚀𝚞𝚊𝚕𝚒𝚝𝚢! Jurský svět: Znovuzrození 𝚏𝚒𝚕𝚖𝚢 𝚔𝚝𝚎𝚛é 𝚓𝚎 𝚖𝚘ž𝚗é 𝚜𝚕𝚎𝚍𝚘𝚟𝚊𝚝 𝚟 𝚝𝚎𝚕𝚎𝚟𝚒𝚣𝚒 𝙳𝚎𝚔𝚜𝚝𝚘𝚙 𝚖𝚊𝚌𝚑𝚒𝚝𝚘𝚜 𝚝𝚊𝚋𝚕𝚎𝚝á𝚌𝚑 𝚝𝚎𝚕𝚎𝚏𝚘𝚗 𝚝𝚊𝚔é 𝙰𝚗𝚍𝚛𝚘𝚒𝚍.| 𝟺𝙺 𝚄𝙷𝙳 | 𝟷𝟶𝟾𝟶𝙿 𝙵𝚄𝙻𝙻 𝙷𝙳 | 𝟽𝟸𝟶𝙿 𝙷𝙳 | 𝙼𝙺𝚅 | 𝙼𝙿𝟺 | 𝙳𝚅𝙳 | 𝙱𝚕𝚞-𝚁𝚊𝚢 | ✿
 
-### ➤ ► [Jurský svět: Znovuzrození 𝚘𝚗𝚕𝚒𝚗𝚎 𝚣𝚍𝚊𝚛𝚖𝚊 𝚜 𝙲𝚉/𝚂𝙺 𝚍𝚊𝚋𝚒𝚗𝚐](https://t.co/gadtnA9OGb)
+### ➤ ► [Jurský svět: Znovuzrození 𝚘𝚗𝚕𝚒𝚗𝚎 𝚣𝚍𝚊𝚛𝚖𝚊 𝚜 𝙲𝚉/𝚂𝙺 𝚍𝚊𝚋𝚒𝚗𝚐](https://t.co/ccJO7xEqXo)
 
-### ➤ ► [Jurský svět: Znovuzrození 𝚘𝚗𝚕𝚒𝚗𝚎 𝚣𝚍𝚊𝚛𝚖𝚊 𝚜 𝙲𝚉/𝚂𝙺 𝚍𝚊𝚋𝚒𝚗𝚐](https://t.co/gadtnA9OGb)
+### ➤ ► [Jurský svět: Znovuzrození 𝚘𝚗𝚕𝚒𝚗𝚎 𝚣𝚍𝚊𝚛𝚖𝚊 𝚜 𝙲𝚉/𝚂𝙺 𝚍𝚊𝚋𝚒𝚗𝚐](https://t.co/ccJO7xEqXo)
 
 𝚂𝚕𝚎𝚍𝚞𝚓𝚝𝚎 Jurský svět: Znovuzrození (𝟸𝟶𝟸𝟻) 𝚘𝚗𝚕𝚒𝚗𝚎 𝚣𝚍𝚊𝚛𝚖𝚊 𝚜 𝙲𝚉/𝚂𝙺 𝚍𝚊𝚋𝚒𝚗𝚐 𝚊 𝚝𝚒𝚝𝚞𝚕𝚔𝚢. 𝚂𝚝á𝚑𝚗𝚘𝚞𝚝 𝚌𝚎𝚕ý 𝚏𝚒𝚕𝚖 Bacha na družičku!, č𝚎𝚜𝚔ý 𝚍𝚊𝚋𝚒𝚗𝚐, 𝙷𝙳 𝚔𝚟𝚊𝚕𝚒𝚝𝚊.
 
